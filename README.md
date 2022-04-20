@@ -1,16 +1,20 @@
-### Hi there 👋
 
-<!--
-**MateusFernande7/MateusFernande7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+### Eae bem vindo ao meu perfil!!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Sou Mateus Fernandes de Santa Maria / RS  estudante de informatica no Colégio Técnico Industrial de Santa Maria
+
+17y 
+
+### Qual seus hobbies? 
+
+Eu gosto...
+
+Escutar música
+Viajar 
+Praia
+
+### Segue aí
+
+(Intagram) https://instagram.com//imateus.fernandes/
+
